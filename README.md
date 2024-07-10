@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @riyajriyu
-- I'am Mechanical Engineer
+- I'am a Mechanical Engineer
